@@ -1,4 +1,4 @@
-
+professional GarageBand for macOS Script | shortcut-customization + 4K-export offers the most advanced GarageBand for macOS script, with shortcut-customization and 4K-export.
 
 
 
